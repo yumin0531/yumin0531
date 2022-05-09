@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @yumin0531
+- 👀 I’m interested in web develop
+- 🌱 I’m currently learning wed devrlop
+- 📫 How to reach me yumin060531@gmail.com
